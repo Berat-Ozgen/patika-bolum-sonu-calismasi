@@ -1,0 +1,1 @@
+# patika bolum sonu çalışması
